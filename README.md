@@ -1,0 +1,2 @@
+# Dekorasyon
+Eksiksiz
